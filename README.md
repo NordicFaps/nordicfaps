@@ -1,8 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=craniotomy&color=red)
 
-**about me** : https://lovynlace.carrd.co/
-
-**for gimmicks** : https://romericas.straw.page/
+**about me** : (strawpage WIP)
 
 certified 2019 ponytown oldgen... don't ask me about spoctor or topspawn
 
