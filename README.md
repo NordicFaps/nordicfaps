@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=craniotomy&color=red)
 
-**about me** : [(strawpage WIP)](https://norden.straw.page/)
+[(about me)](https://norden.straw.page/)
 
 certified 2019 ponytown oldgen... don't ask me about spoctor or topspawn
 
