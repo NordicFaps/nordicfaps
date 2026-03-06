@@ -2,4 +2,6 @@
 
 check meowt on X (the everything app)
 
-![](https://static.zerochan.net/Nordic.Countries.full.1184820.jpg)
+kind messages go here: https://norden.straw.page/
+
+![](https://media1.tenor.com/m/MTUq-cEYnngAAAAd/nordic-5-hetalia.gif)
